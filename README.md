@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @M623700
-- 👀 I’m interested in script 
-- 🌱 I’m currently learning script and others
-- 💞️ I’m looking to collaborate on Fb
-- 📫 How to reach me? Contact me on my fb account: lalang.com10206
+- this is the link :
+
+bit.ly/3ild93L
